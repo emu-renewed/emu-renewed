@@ -2,7 +2,7 @@
 - 👀 I’m interested in Nayna and my career
 - 🌱 I’m currently learning something that idk
 - 💞️ I’m looking to collaborate on idk🫥
-- 📫 How to reach me instagram: nepenthe_addict
+- 📫 How to reach me instagram: emu_found
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: math genius
 
