@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @emu-renewed
-- 👀 I’m interested in Nayna and my career
+- 👀 I’m interested in Zeba and my career
 - 🌱 I’m currently learning something that idk
 - 💞️ I’m looking to collaborate on idk🫥
 - 📫 How to reach me instagram: emu_found
